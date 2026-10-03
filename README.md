@@ -3,6 +3,6 @@
     ???????
 ```
 
-hi i'm **yero**. i write code when the idea won't leave me alone.
+hi i'm **yero**. i exploit sometimes i guess
 
-**here** ? [github.com/yewo6](https://github.com/yewo6)
+**hello** ? https://nohello.net/
